@@ -1,1 +1,1 @@
-This is a canary. If it exists I do not work for the NSA. The second this dissappears then you know, I got the job! :)
+If this repository disappears I started working for a 3-letter agency in DC. 
